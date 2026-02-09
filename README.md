@@ -1,4 +1,4 @@
-# How beneficial are Trade Blocs to its members?
+# How Beneficial Are Trade Blocs To Its Members?
 
 Google Slides presentation: https://docs.google.com/presentation/d/1wkXrO0GgZ1EiGP1QNBeQ3-oCs7ocgw_nIwes4NJX5dg/edit?usp=sharing
 
